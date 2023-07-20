@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **java, spring framework, spring boot,**
 
-- 📫 How to reach me **kbadia249@gmail.com**
+- 📫 How to reach me **badia.kshirod@gmail.com**
 
 - ⚡ Fun fact **I don't have instagram a/c and I don't want to be in instagram**
 
